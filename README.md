@@ -5,7 +5,7 @@ https://en.wikipedia.org/wiki/Idioteque
 
 https://www.youtube.com/watch?v=svwJTnZOaco 
 
-Idio-tech-Tech for idiotech sampling
+Idio-teque Tech for idiotech sampling
 
 19th century version
 --
